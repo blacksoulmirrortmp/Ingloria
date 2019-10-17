@@ -1,0 +1,2 @@
+# Ingloria
+Praca dyplomowa PJWSTK
